@@ -1,13 +1,1 @@
-A B C D E F G
-
-H I J K L M N
-
-O P Q R S T
-
-U V W X Y Z
-
-X Y Z
-
-now you see
-
-I can say my A B C
+此地无银三百两，隔壁老王不曾偷。
