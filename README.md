@@ -1,1 +1,1 @@
-七大恨
+insist call you chinese
