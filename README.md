@@ -1,1 +1,1 @@
-insist call you chinese
+Port Edward Insist on Ultra Durable
